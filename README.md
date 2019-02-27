@@ -20,9 +20,15 @@ https://tomato-timer.com/#
 
 for the free time between anytasks or anytime aday .... see this: 
 >>>> https://www.youtube.com/user/tahriracademy/playlists 
+
 am sure you will find a lot of things that might be interested in
 especially these two playlists:
-هو ايه هي الرياضيات دي ؟! 
-what is maths ?! >>>> https://www.youtube.com/playlist?list=PLBei6dkcMlV8lD9t3KcfP7HRwKD_0zanr
+
+هو ايه هي الرياضيات دي ؟!
+what is maths ?! 
+>>>> https://www.youtube.com/playlist?list=PLBei6dkcMlV8lD9t3KcfP7HRwKD_0zanr
+
+
 هو ايه الفيزياء دي ؟!
-what is physics ?! >>>> https://www.youtube.com/playlist?list=PL422936E3384B45CE
+what is physics ?! 
+>>>> https://www.youtube.com/playlist?list=PL422936E3384B45CE
